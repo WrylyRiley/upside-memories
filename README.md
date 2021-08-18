@@ -147,3 +147,13 @@ I completed my lofty goal of meeting every single person here in my first few mo
 I have gained so much knowledge since joining Upside, and I know that I was able to contribute as much as I could to the team and the culture. Between taking on emails head first, to working with such amazing people on theming and frontend cleanup, My time here was truly enriching, and this was hands down one of the best jobs I’ve ever had. 
 
 I sincerely hope I get to work with all of you again in the future. Good luck. I’ll miss you
+
+## Marius Mogyorosi
+
+I want to echo a couple things @Kris and @Riley said:
+
+- I’ve worked at companies with much higher risk profiles, and where security was intrinsic to their mission and product, and still Upside was an incredibly smooth experience rather than a sisyphean one. People defaulting to collaboration for the benefit of all is just a marvel to behold :sparkles: :vibe:
+
+- I’m sure I would have had a much, much worse time trying to work elsewhere throughout the pandemic. I joined Upside near the end of 2020 and even then a new job and the rest of my time here was much less stressful than at the previous place. I can’t imagine where I’d be mentally if I couldn’t count on the flexibility and support I found here.
+
+Although I haven’t been here too long and didn’t get to meet anyone in person, I definitely felt like part of the team and believe my contributions had a positive impact - which is impossible in Security without the support of everyone else. I’ve made friends and nerded out to :vim: and :python: to my heart’s content! :laughing:
