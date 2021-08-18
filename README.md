@@ -164,3 +164,36 @@ I was lucky enough to be in the office for 3 months and change before we made th
 It's sad that it's over but I'm happy I was lucky enough to be apart of this amazing team and will miss you all! I wish everyone the best of luck and hope to see you at some point in the future personally or professionally.
 
 Keep in touch
+
+## Tara Stigall
+
+It's fitting that I'm currently on a tarmac in a :airplane: heading to higher ground :snow_capped_mountain: . Every person I know that has asked me, How's work?, over the past year has heard nothing but love & praise for this company & people. I had some quite grim things happening in my personal life over the past year and being with Upside sincerely brought joy into my life at times when it was really difficult to find elsewhere. When I interview in the future, Upside will always get a nod in the 'Tell me about a time...' answers because it set a very high standard against all other experiences.
+
+Special shout outs:
+
+- To the Engineering teams that let me invade their space & take a seat on their team bench.
+- To every PM that asked, But why?, for every feature I asked for & challenged me to dig deep to bring answers.
+- To Apolloans for making me feel old & curious about Pokémon.
+- To my CX/DTX fam, there aren't enough words... You put a smile on my face every damn day.
+- Thank you @tscottcase @jenmoyer @tracy @mike.debnam @Cris for creating & nurturing this culture.
+- Thank you all Upsiders for bringing your energy, humor, support, and determination.
+- 
+Please never hesitate to shoot me a text, an amazing tiktok, a dumb meme, or yes, even a travel question. And if you ever find yourself in Kansas City, hit me up for a :coffee:️ or:beer:.
+
+## Mic Vachon
+
+There are truly no words that would do justice for how grateful I am to have been part of the Upside family. Thank you to everyone who helped make this ride something I will remember and be grateful for for the rest of my life.
+
+## Robert Townley
+
+On my first day, someone–I don’t remember who… that day was a BLUR–told me that a month at Upside is like a year somewhere else, both in terms of things you learn, and the connections you make. Like that person’s name, I also don’t remember much about the next two weeks. I just remember waking up later knowing Typescript, how airline inventory systems worked, and which of the three Chipotles near 1 Thomas Circle would be mobbed at lunchtime.
+
+I do remember my third week, because that was when the office shut down. Also the 5th week. That was the one where I found out Upside wanted me to work on a telecardiology mobile application with the WILDEST architecture imaginable. Then it’s back to a blur for three months but suddenly I know Kotlin and the Twilio API, and feel a deep and meaningful friendship with 7 people I’d never met in person.
+
+I remember rejoining Valkyrie, and worrying that I wouldn’t mesh as well with the team as I did with my Heartbeat Health crew. I was worried that my job was now to maintain two microservices for every term in aviation (one experience service and one vendor service). But I also remember just... sort of trusting that Upside would make things work out.
+
+The next memory blur was a pretty long one. I attribute it to pandemic malaise and new parent sleep deprivation. At the end of that one, months have passed. I’ve learned more about software development than I had in 5 years at my previous company, and Valkyrie now feels like home. Also I’m a dad now, and whatever distant worries I had about “my company not supporting me through new parent life” have been replaced by “the slow burn that comes from knowing my coworkers want to see June more than me”.
+
+During normal times, getting that support from your company is empowering and restorative. But these weren’t normal times, and working for Upside got me through the pandemic. I spent months locked in a small apartment, worrying about how to keep COVID away from a pregnant partner and then an infant daughter. Even more so than Animal Crossing, this company’s understanding, enthusiasm, and devotion to each other was a shining light that made each day enjoyable. I’m a world-class forgetter, but I’ll never forget that.
+
+I deeply wish I’d had more than 18 months with you all, but I’m grateful for every second. Thank you to the leadership team for making Upside the best company I’ve ever worked for. Thank you to the unyinz, mobsters, 86ers (NOT YOU), and darkly joyous team lead who made Valkyrie what it was. And from the bottom of my heart: thank you all for 1.5 years of cranking and vibing. The delight was mine.
