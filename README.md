@@ -144,3 +144,9 @@ I want to echo a couple things @Kris and @Riley said:
 - I’m sure I would have had a much, much worse time trying to work elsewhere throughout the pandemic. I joined Upside near the end of 2020 and even then a new job and the rest of my time here was much less stressful than at the previous place. I can’t imagine where I’d be mentally if I couldn’t count on the flexibility and support I found here.
 
 Although I haven’t been here too long and didn’t get to meet anyone in person, I definitely felt like part of the team and believe my contributions had a positive impact - which is impossible in Security without the support of everyone else. I’ve made friends and nerded out to :vim: and :python: to my heart’s content! :laughing:
+
+## Monica Bacican
+
+This sucks so bad and I’m going to miss all of you AMAZING people
+
+Keep in touch plz
