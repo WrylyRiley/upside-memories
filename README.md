@@ -53,7 +53,7 @@ Thank you to my PM squad, specifically @tracy, for taking a gamble on me and slo
 
 Don't be strangers! Add me on LinkedIn, Instagram, Facebook (i am never on it) whatever - if you find me, add me. I won't be weirded out haha.
 
-My number is 4438334231 - admittedly, I am not good at answering texts sooOOOO.... roll the dice. I might respond :ac_roverlaughhaha:
+Admittedly, I am not good at answering texts sooOOOO.... roll the dice. I might respond :ac_roverlaughhaha:
 
 This should be a really sad day, but I am honestly feeling very at peace. We built really cool stuff, most of it worked, and we had fun while doing it. I think that's what matters.
 :delight: :crank: :vibe: LOVE YOU ALL!
@@ -61,8 +61,6 @@ This should be a really sad day, but I am honestly feeling very at peace. We bui
 ## Emily Gerrity
 
 Upside gave me such an incredible opportunity. I  was being mistreated at my previous position, and it was such an amazing and surprising experience to be able to work with such a diverse and empathetic team. I learned so much, and loved everyone I worked with. You are all the best, and I know we will all go on to do great things. 
-
-My number is 4406679749 and my email is ergerrity@gmail.com 
 
 ## Jalena Hey
 
