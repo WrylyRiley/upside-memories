@@ -150,3 +150,13 @@ Although I haven’t been here too long and didn’t get to meet anyone in perso
 This sucks so bad and I’m going to miss all of you AMAZING people
 
 Keep in touch plz
+
+## Brooks Lawrence
+
+I'll never forget the day I came in for my in person interview 2 Octobers ago. I was sitting in the waiting area and was asked to sign in with an iPad but when I tried to sign in it wouldn't work and asked for the Apple ID. So I walked into a conference room and none other than @tracy was there working away...I asked for help and she went 0 to 60 to lend a hand, we shared a few jokes and the rest was history.
+
+I was lucky enough to be in the office for 3 months and change before we made the move to remote. And after being at Upside for a week, it felt like a year, everyone was so nice and helpful and I felt like I was truly at home with family. After we went remote it was challenging but I never felt like we lost an ounce of that vibe :vibe:.
+
+It's sad that it's over but I'm happy I was lucky enough to be apart of this amazing team and will miss you all! I wish everyone the best of luck and hope to see you at some point in the future personally or professionally.
+
+Keep in touch
