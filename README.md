@@ -60,15 +60,20 @@ This should be a really sad day, but I am honestly feeling very at peace. We bui
 
 ## Emily Gerrity
 
-Upside gave me such an incredible opportunity. I  was being mistreated at my previous position, and it was such an amazing and surprising experience to be able to work with such a diverse and empathetic team. I learned so much, and loved everyone I worked with. You are all the best, and I know we will all go on to do great things. My number is 4406679749 and my email is ergerrity@gmail.com 
+Upside gave me such an incredible opportunity. I  was being mistreated at my previous position, and it was such an amazing and surprising experience to be able to work with such a diverse and empathetic team. I learned so much, and loved everyone I worked with. You are all the best, and I know we will all go on to do great things. 
+
+My number is 4406679749 and my email is ergerrity@gmail.com 
 
 ## Jalena Hey
 
 Reading all these messages really reinforces how irreplaceable the people and culture is at Upside. I am so appreciative of having given this opportunity (@tracy ty!!!!!!!) and so thankful for having such an awesome and supportive team. Thank you for taking the chance on me! Thank you Valk Team and Design Team I love ya all! I have learned so much and today is such a sad day, but also so uplifting to know how much support there is. Thank you for also always welcoming Sammy to all the meetings (usually shirtless lol). I know he will miss all the meetings and morning standups too! I hope I can find a job that makes me feel as important and gives me the amazing work life balance that I need. :heart::cool_crying:
 
 Please KIT !
+
 818-481-7931
+
 jalenahay@gmail.com
+
 https://www.linkedin.com/in/jalenahay
 
 ## Michele Cardoso
