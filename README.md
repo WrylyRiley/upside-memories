@@ -214,3 +214,9 @@ May the Force be with you all. Always.
 ## Jeffrey Moore
 
 I'll try to keep this short. Upside was such a life saver for me. Moving through multiple states over the course of a year (literally moving from PA, to VT, NH, MA and finally CT) took a lot out of me and then I got laid off (due to COVID) and found myself in a job hunt and I hadn't even really got settled yet. I had a pretty long job hunt last summer and it wasn't until I found Upside and met @tracy, @kristen, Elizabeth, Sabrina, and Jessica that I knew I had found an amazing design team. I instantly felt at home. And that feeling continued with each and every Upsider that I had to privilege of meeting. You are such wonderful people and the crazy thing is I haven't even gotten to meet you all. This has been such a transformative experience for me. Thanks so much the this opportunity and I wish you all the best. Feel free to keep in touch
+
+## Noah Lubin
+
+To be brief, Upside renewed my faith in the world through compassion, empathy, integrity, honesty, and great leaders.   It was a short time for me but so much learned.  
+
+Thank you all! 
