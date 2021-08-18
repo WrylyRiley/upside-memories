@@ -70,12 +70,6 @@ Reading all these messages really reinforces how irreplaceable the people and cu
 
 Please KIT !
 
-818-481-7931
-
-jalenahay@gmail.com
-
-https://www.linkedin.com/in/jalenahay
-
 ## Michele Cardoso
 
 I’m not as good as all of you to put my feelings into words at this moment, so I’ll summarize to `"Thank you all! You are all amazing and wish you all the best, because you all deserve it! I'll f** miss you!"`  :purple_heart: (edited) 
@@ -94,9 +88,6 @@ Thank you @tracy and @tscottcase for not letting me give up on Product. Thank yo
 
 Okay Connor is looking at me like "Why are you crying? What happened?" so here -
 
-617-939-5368
-
-egumbulevich@gmail.com
 
 I've said it 100x since Monday but I will help anyone with anything - recommendations, resume reviews, references, connections, let me know. I'm a cheerleader for life.
 
@@ -110,19 +101,11 @@ When I first started back in November last year, I was coming from a company wit
 
 To happy thoughts... everyone at this company are some of the most capable and passionate individuals I have ever met and I have no doubt will do amazing things. For this reason,  I fully intend to stalk all your LinkedIns to follow on what will undeniably be incredibly journeys. I am forever grateful to have joined Upside and met all you amazing humans :purple_heart: :wink: :upside:
 
-fdapiran@gmail.com
-
-973 349 4354
-
 ## David Lee
 
 :upside: fam, i’m going to try and keep this short since i’ve DM’d most of you, but also because my fellow colleagues have eloquently said what a lot of us feel…a mixture of immense sadness but also incredible gratitude of what we built, but more importantly, what we had in each other.  short backstory, i’m a born and raised Cali guy who volunteered in 2017 to leave behind the familiar to take a year off of work to move out to the East Coast to help kickstart a new church plant, which focuses on college ministry.  After getting things up and running, I had to to find a job thereafter.  I’ve previously only worked for large corporations like at&t, peoplesoft, and an electric utility company, but my risk averse self took a chance to be part of a startup at the suggestion of my childhood friend, Kenny Choi (former awesome Upsider) who referred me here.
 
 I had a lot of feelings of insecurity and nervousness upon getting onboarded as I met so many bright and talented people on my first team (shout out of team :valkyrie2: !) and i was afraid that i wouldn’t be able to cut it.  so those first few months were a little tense and intimidating, which probably showed as I stayed in my awkward :shell: but over time i realized that everyone here cared and looked out for each other, which came from the top.  that sense of security i grew to experience enabled me to come out of my shell just a tad (hence the music videos i’ve created in the past) and enabled me to grow here.  so…thank you all for the memories.  Here’s one last message from my girls who have had so much fun being part of the :upside: family as they asked about all the interesting and amazing co-workers their dad got to have these past 2 years.  Much love, wish you the very best, and God bless!
-
-512-710-6120
-
-davidjlee@gmail.com
 
 ## Michael Burkman
 
