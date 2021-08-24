@@ -1,16 +1,9 @@
 # Upside Memories
 
-I wanted to compile all of the wonder things people wrote about Upside in the @general channel before slack was turned off forever. Here's what everyone has to say about us and our time working together
+# [Photo Album](https://photos.app.goo.gl/dHLVAM5NkUri1b3e6)
 
-# Photos
+I wanted to compile all of the wonderful things people wrote about Upside in the @general channel before Slack was turned off forever. Here's what everyone has to say about us and our time working together.
 
-toss your photos here 
-
-https://photos.app.goo.gl/dHLVAM5NkUri1b3e6
-
-Mollie has an album too
-
-https://photos.app.goo.gl/XKkXQhQJRY1s6rXW7
 ## Will Ley
 
 I would also like to add a thank you as well to all of the leadership for going to the mat for us. You took it as far as we could and didn't let the dream of it put us in harms way. Thank you for that and for creating an amazing space of caring and support!
@@ -219,4 +212,132 @@ I'll try to keep this short. Upside was such a life saver for me. Moving through
 
 To be brief, Upside renewed my faith in the world through compassion, empathy, integrity, honesty, and great leaders.   It was a short time for me but so much learned.  
 
-Thank you all! 
+Thank you all!
+
+
+## Holiday Poems written by Catherine Guarnieri
+### 2019
+'Twas the night before Christmas, when all through the office
+Not a feature was shipping, just to be cautious;
+JIRA tickets were left in their swim lanes with care,
+With hopes that the backlog might just disappear;
+
+The engineers were nestled all snug in their beds;
+While visions of scrum-donuts danced in their heads;
+And Scott in his Nikes, and Jay suited up,
+Had just done one final bi-weekly roundup.
+
+When out on the terrace there arose such a clatter,
+Design sprang from their corner to see what was the matter.
+Away to the window flew UX in a flash,
+Stepped over the legos and threw up the sash.
+
+The Upside logo all bright and aglow,
+Gave a beacon to travelers way down below.
+When what to their wondering eyes did appear,
+But one CTO and eight engineers!
+
+With wit and command of full stack complexity,  
+They knew in a moment that she must be Emily.
+More rapid than slack messages her architects they came,
+And she whistled, and shouted, and called them by name:
+
+"Now, Bellerose! now, Burkman! now Tony and Sean!
+On, Emily! on, Shehroze! on, Liz and on Dhaman!
+Heads down we go until baseline is ours,
+Now code away! Code away! Code away hours!”
+
+And then, in a twinkling, they heard in the lobby,
+The prancing and pawing of Wesley and Rami.
+Design drew in their heads, and turned right around,
+Just in time to see Meeks & little Pepper abound.
+
+Lin was dressed as a Dino, from his head to his feet,
+And Toast was all laughing in a moment so sweet,
+“A bundle?” Yelled G, “no one knows what that means!”,
+And “HAH” triumphed Monica, as she blocked the Philippines.
+
+Jason’s eyes were a-twinkled at growth, so merry!
+“Do your dishes”, said Danielle, there’s no kitchen fairy.
+While John Reed only wants our expenses all done,
+There’s a battle in DS for the best nerf gun.
+
+“Bounce” goes our data guru Mr. Holmes,
+On his way to meeting the other eight OMs.
+Chris and his labs are talking AI and meats,
+While Bolak is listening to Buble though his Beats.
+
+“Now is good” is a phrase for 2019,
+As we all take a break to close out ’18.
+Even Scott is okay with the holiday break,
+So long as its TripActions we soon overtake.
+
+He finished his iced tea, to his team gave high fives,
+And began to reflect on Upside’s past strides.
+I heard him exclaim, before he skipped out of sight—
+“Happy Christmas to all, and to all a good night!"
+
+### 2020
+'Twas the last day of demos, when all through 1 Thomas,
+Not a Zoom link was working, not a’one in the office;
+Allison was hanging on the phone line with care,
+In hopes that Matt Harrison soon would be there. 
+
+The sales team was nestled all snug in Cockpit;
+While questions from leads they answered with wit;
+And Jason in UNTUCKit, and Brian B in his tank,
+Had just played the ‘win’ song from their shared office Crank,
+
+When out on the circle there arose such a clatter,
+Jami sprang from her desk to see what was the matter.
+Away to the window Phil flew like a flash,
+Tore down the blinds and threw up the sash.
+
+Traffic was snarled on the streets down below,
+And the headlights gave off a nice wintery glow,
+When what to our wondering eyes did appear,
+But a gang of Bird scooters bearing eight engineers,
+With a tall-haired lead so lively on Slack,
+I knew in a moment it must be Sean Bolak.
+
+More rapid than RAPID the PMs they came,
+And he whistled, and shouted, and called them by name:
+_"Now, Birin! now, Sarah! now David and Izzy!_
+_On, Roxanne! on, Emma! Jamie, Lauren & Tracy!_
+_To Players Club we go! To the next phase we chug!_
+_We groomed away! groomed away! groomed away bugs!"_
+
+With Alpha we proved we could get people to fly,
+When under Flight Centre codes they took to the sky;
+So up to the rooftop the team leads they flew
+With the bags full of macbooks, and Erin Lord too—
+
+And then, in a twinkling, they heard from the lobby
+Loud cheers from a man with a major shoe hobby.
+As I drew in my head, and was turning around,
+Down the hall, he came with a pink tea to be downed.
+
+He was dressed all in purple, from his head to his toes,
+And his clothes were all covered with Upside logos;
+A group of new Upsiders he had flanking his side,
+Our new CEO, he was beaming with pride.
+
+Their eyes—how they twinkled as their journey begins, 
+From tacos and all-hands, to wellness and #wins,
+Life here at Upside brings joy and good cheer, 
+As we grow as a team a little each year.  
+
+There’s Sapphire and Ruby brimming so full of genius, 
+And designers that make a user’s experience seamless. 
+Data Science heads down on all things Rec engine, 
+And CX with an eye on every customer’s session. 
+
+Scott’s contagious, kind smile drawn up like a bow,
+As he looked all around and bellowed ‘How about now!’ 
+There’s work still to be done, from policy to trains, 
+But nothing we can’t do, with our collective brains. 
+
+He sprang to his desk, to his team gave a whistle. 
+And away we all flew, a final 2019 dismissal. 
+But we heard him exclaim, as we dipped out of sight, 
+_“Happy 2020 to all, may it be full of Crank, Jive and Delight.”_
